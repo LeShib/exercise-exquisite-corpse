@@ -1,1 +1,3 @@
-# exercise-exquisite-corpse
+# <h1 align="center">Le merveilleux voyage de Louka<h1>
+
+<p><b>Louka</b> est un petit singe des montagnes très maladroit, un jour sa maman l'envoya chercher des réserves de nourriture pour sa tribu.<br>En chemin, alors qu'il s'est un peu perdu, il fait la rencontre d'un jeune éléphanteau appelé <b>Noa</b> qui semble seul, Louka lui propose de l'aider pour retrouver sa famille et en échange Noa accepte de l'aider à récolter des ressources pour sa tribu. <br>Nos 2 amis arrivent à l'entrée de la jungle et ils entendent des gémissements, c'est à ce moment qu'ils découvrent une tigresse blessée dénommée <b>Jodie</b> prise dans un piège posé par des braconniers, <i>Noa et Louka</i> trouve un moyen de la libérer et cette dernière se met en route avec eux.<p>  
