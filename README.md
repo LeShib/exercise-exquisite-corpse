@@ -31,7 +31,7 @@ Pêrché sur son arbres, le tigre observe ces deux compères entrain de la cherc
 
 Tant dis qu'en bas les petits animaux pris de panique, commencent à courir vers une clairière, et arrivé ici ils se rendant compte qu'ils sont tombé sur un énorme champs de <i>canabis</i> !!
 
-D'un coup l'éléphantau, commence à rire et tangué et s'éffondre dans le champs tant dis que le petit singe ne comprennent pas ce qu'il se passe cherche à réanime <b>Noa</b>. À ce moment là, la tigresse arrive et s'étale près du corps de l'éléphant. Et pas dépit le petit singe s'assit et pris un peu de l'herbe près de lui et s'en roula un... et s'endormi avec ces deux nouveaux ami toxico.</p>
+D'un coup l'éléphantau, commence à rire et tangué et s'éffondre dans le champs tant dis que le petit singe ne comprennent pas ce qu'il se passe cherche à réanime <b>Noa</b>. À ce moment là, la tigresse arrive et s'étale près du corps de l'éléphant. Et pas dépit le petit singe s'assit et pris un peu de l'herbe près de lui et s'en roula un... et s'endormi avec ces deux nouveaux amis toxico.</p>
 
 -------------------------------------------------------------------------------
 <p align="center">
